@@ -2,6 +2,6 @@
 
 👨‍💻 All of my projects are available at https://github.com/dohangha
 
-📫 How to reach me dohangha@gmail.com 
+📫 How to reach me hadohang@gmail.com 
 
 
